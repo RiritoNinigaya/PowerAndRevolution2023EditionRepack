@@ -1,0 +1,2 @@
+# PowerAndRevolution2023EditionRepack
+PowerAndRevolution2023EditionRepack by RiritoNinigaya
